@@ -3,4 +3,4 @@ Hi
 
 
 
-[Hummmm](https://misieur.github.io.fan2mastekh)
+[Hummmm](https://misieur.github.io/fan2mastekh)
