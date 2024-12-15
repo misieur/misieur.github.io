@@ -6,5 +6,8 @@
 ![screenshot](https://misieur.github.io/assets/1.1.png)
 ![screenshot](https://misieur.github.io/assets/1.2.png)
 
-# [#2 (15/12/2024 en retard)](https://www.youtube.com/shorts/-emqZSFQMTI)
+# [#2 (14/12/2024 en retard)](https://www.youtube.com/shorts/-emqZSFQMTI)
 ![screenshot](https://misieur.github.io/assets/2.png)
+
+# [#2 (15/12/2024)](https://www.youtube.com/shorts/XSg9IJ2Vglk)
+![screenshot](https://misieur.github.io/assets/3.png)
